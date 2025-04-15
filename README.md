@@ -1,4 +1,4 @@
-# The Finals Cheat Panel TitanCore 🛠️
+# The Finals Cheat Panel 🛠️
 
 One tool to rule them all. TitanCore delivers everything you need to dominate The Finals with style, precision, and strategy.
 
